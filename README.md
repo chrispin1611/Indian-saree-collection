@@ -21,6 +21,7 @@ Karnataka Ilkal sarees online
 Best saree shops in India
 Affordable silk sarees online
 Visit page shop now <h2>
+<img src="https://d1ixo36kppfedg.cloudfront.net/faceview/ig/jh/b9c/fh/imgs/e0bcd228-ce96-4a40-b8f6-109aa1a7398b_57129786-xlgnm400x400.jpg?productId=P-32703340" alt="south indian bridal look" width="400" height="300">
 
 <h1>For brides, <a href="https://myshopprime.com/product/beautiful-art-silk-pink-jacquard-saree-with-blouse-piece-for-women/1690007311">South Indian wedding sarees</a> are a top choice for their vibrant colors and intricate designs. You can also explore the <a href="https://myshopprime.com/product/beautiful-art-silk-pink-jacquard-saree-with-blouse-piece-for-women/1690007311">Indian bridal saree collection</a>, including the famous <a href="https://myshopprime.com/product/beautiful-art-silk-pink-jacquard-saree-with-blouse-piece-for-women/1690007311">Kanjivaram saree for weddings</a>.</h2>
 
